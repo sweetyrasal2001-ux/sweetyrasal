@@ -25,4 +25,4 @@ I learned and used this workflow during my on the job training at the Bioinforma
 
 ## Author
 Sweety Rasal, M.Tech Chemical and Biotechnology, SPPU, Pune
-LinkedIn: https://www.linkedin.com/in/sweetyrasal-0b7754232
+LinkedIn: https://www.linkedin.com/in/sweety-rasal-0b7754232
